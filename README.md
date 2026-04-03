@@ -14,7 +14,8 @@
 - Programming (learning phase)
 
 ---
-
+instagram view 
+https://www.instagram.com/murtaza____ismail?igsh=dG96bTVveXJvdG9i
 ## 📈 GitHub Stats
 ![Murtaza's GitHub stats](https://github-readme-stats.vercel.app/api?username=YOUR_USERNAME&show_icons=true&theme=radical)
 
