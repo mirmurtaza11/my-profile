@@ -21,9 +21,6 @@ https://www.instagram.com/murtaza____ismail?igsh=dG96bTVveXJvdG9i
 
 ---
 
-## 🔥 Streak Stats
-![GitHub Streak](https://streak-stats.demolab.com/?user=YOUR_USERNAME&theme=radical)
-
 ---
 
 ## 🌐 Connect with Me
